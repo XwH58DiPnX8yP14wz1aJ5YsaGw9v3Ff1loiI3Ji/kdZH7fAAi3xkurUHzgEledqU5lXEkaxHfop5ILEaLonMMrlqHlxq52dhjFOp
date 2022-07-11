@@ -1,1 +1,0 @@
-[![[crazy-cool-cat.png]]]
